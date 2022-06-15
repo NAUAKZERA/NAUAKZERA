@@ -1,0 +1,5 @@
+- 🥶 oi, meu nome é nauakzera (@kauan_santosx)
+- 👀 estou interessado em fazer os jogos com perfeição
+- 🌱 atualmente estou focado em pong
+- 💞️ estou tendo aula com o prof teotoniojr
+- 📫 você pode me encontrar em santos.kauan06@escola.pr.gov.br
