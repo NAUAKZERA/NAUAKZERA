@@ -1,5 +1,5 @@
-- 🥶 oi, meu nome é nauakzera (@kauan_santosx)
-- 👀 estou interessado em fazer os jogos com perfeição
-- 🌱 atualmente estou focado em pong
+- 🥶 oi, meu nome é nauakzera eu gostummm (@kauan_santosx)
+- 👀 estou interessado em ficar lelé da cuca com guaraná jesus🤪
+- 🌱 atualmente estou focado em treinar minha cuceta
 - 💞️ estou tendo aula com o prof teotoniojr
-- 📫 você pode me encontrar em santos.kauan06@escola.pr.gov.br
+- 📫 você pode me encontrar em algum cabaré ou em santos.kauan06@escola.pr.gov.br
