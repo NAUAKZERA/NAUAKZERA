@@ -1,4 +1,4 @@
-- 🥶 oi, meu nome é nauakzera eu gostummm (@kauan_santosx)
+- 🥶 oi, meu nome é nauakzera bem poggers(@kauan_santosx)
 - 👀 estou interessado em ficar lelé da cuca com guaraná jesus🤪
 - 🌱 atualmente estou focado em treinar minha cuceta
 - 💞️ estou tendo aula com o prof teotoniojr
