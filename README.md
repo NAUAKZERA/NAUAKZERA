@@ -1,5 +1,5 @@
 - 🥶 oi, meu nome é nauakzera bem poggers(@kauan_santosx)
-- 👀 estou interessado em ficar lelé da cuca com guaraná jesus🤪
-- 🌱 atualmente estou focado em treinar minha cuceta
+- 👀 estou interessado em ser bom
+- 🌱 atualmente estou focado em virar o Ednaldo Pereira
 - 💞️ estou tendo aula com o prof teotoniojr
 - 📫 você pode me encontrar em algum cabaré ou em santos.kauan06@escola.pr.gov.br
