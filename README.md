@@ -1,4 +1,4 @@
-- 🥶 oi, meu nome é nauakzera bem poggers(@kauan_santosx)
+- 🥶 oi, meu nome é nauakzera bem poggers(@imnotnauak)
 - 👀 estou interessado em ser bom
 - 🌱 atualmente estou focado em virar o Ednaldo Pereira
 - 💞️ estou tendo aula com o prof teotoniojr
